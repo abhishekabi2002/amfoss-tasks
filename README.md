@@ -1,1 +1,3 @@
 # Amfoss-tasks
+
+Learning some exercises and I believe that I will be a good programmer in the upcoming years...
