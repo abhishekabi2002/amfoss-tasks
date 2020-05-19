@@ -4,7 +4,7 @@
 
 💥I am from TamilNadu.And my native is Kanyakumari.
 
-💎I studied CS stream in TAMILNADU And the Syllabus named "SAMACHEER KALVI".
+💎I studied CS stream in TAMILNADU.
 
 💎I scored 99% in COMPUTER in my HSC.
 
