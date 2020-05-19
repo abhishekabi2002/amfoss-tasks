@@ -1,8 +1,8 @@
 # S.Abhishek Hereby...!!!
 
-#I was born and raised in the heart of Tamilnadu and grew up as a very outgoing and active child. 
+I was born and raised in the heart of Tamilnadu and grew up as a very outgoing and active child. 
 
-#I aspire to receive a Bachelor's Degree in Computer Science from Amrita Vishwa Vidyapeetham ( Amritapuri Campus ). 
+I aspire to receive a Bachelor's Degree in Computer Science from Amrita Vishwa Vidyapeetham ( Amritapuri Campus ). 
 
 I was involved in campus activities and organized many team works during my Intermediate. 
 
